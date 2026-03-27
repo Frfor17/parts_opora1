@@ -1,0 +1,1 @@
+# parts_opora1
